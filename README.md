@@ -17,8 +17,10 @@ Ao longo da minha trajetória, adquiri habilidades em diversas ferramentas e lin
 
 #### 🔗 Entre em Contato 🔗
 
-Caso queira entrar em contato comigo, sinta-se à vontade para enviar uma mensagem pelo [LinkedIn](linkedin.com/in/lavínia-silva-dias-66821b283) ou por [e-mail](Lavinia.sdias@outlook.com) . Vamos colaborar, aprender e construir juntos!
-
+Caso queira entrar em contato comigo, sinta-se à vontade para enviar uma mensagem pelo LinkedIn ou por email:
+- [Linkedin](linkedin.com/in/lavínia-silva-dias-66821b283)
+- [E-mail](Lavinia.sdias@outlook.com)
+ 
 Obrigado por visitar meu perfil! 😄
 
 <!--
